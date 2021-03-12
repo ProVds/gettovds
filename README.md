@@ -1,4 +1,4 @@
-# 𝕘𝕖𝕥𝕥𝕠𝗩𝗗𝗦
+# !HYPERS
 
 Discord : https://discord.gg/cFTakkEpeT
 
